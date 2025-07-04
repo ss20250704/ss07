@@ -18,4 +18,4 @@
 
 总结来说，选择合法、安全、信誉好的平台是享受“日本AV免费”资源的最佳方式，确保您获得高质量影片的同时，保护隐私和设备安全。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss20250704/ss07 ）</span>
